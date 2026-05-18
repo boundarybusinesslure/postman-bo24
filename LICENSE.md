@@ -1,4 +1,4 @@
-# 
+# ultimate JetBrains IntelliJ IDEA para PC scripts é o melhor JetBrains IntelliJ IDEA para PC scripts com ferramentas de colaboração e comparação de esquemas. Seguro, confiável e
 
 
 
